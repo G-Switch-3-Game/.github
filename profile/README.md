@@ -2,6 +2,8 @@
 
 **G-Switch 3** is not just a game—it's a **lightning-fast, gravity-defying survival experience**. Get ready to test your reflexes in a world where **gravity is your weapon** and every wrong step could mean game over.
 
+## <a href="https://1kb.link/6qgWY4">👉 Play G-Switch 3 Unblocked Games NOW 👈</a>
+
 With **epic parkour moves**, **hyper-speed running**, and **insane level designs**, G-Switch 3 takes endless runner games to a whole new level. Whether you're playing solo or battling it out in **multiplayer mode**, this game is a true test of skill, timing, and control.
 
 ---
